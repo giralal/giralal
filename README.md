@@ -1,8 +1,4 @@
-Hi im Giral
+hi why are you reading this?
 
-I have no clue how to do anything
 
-NOT a cat uwu~
-
-I spin
-
+no I don't actually use this account for anything so leave1!

@@ -1,4 +1,5 @@
-hi why are you reading this?
+# Welcome to my profile.
 
 
-no I don't actually use this account for anything so leave1!
+
+ I don't really use github much don't expect much lel
